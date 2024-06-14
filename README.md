@@ -1,0 +1,2 @@
+# kirpedija
+Visos teisės saugomos.
